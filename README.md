@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on coding projects.
 - 📫 How to reach me? This is my email ad: echaluceemanuel@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I can solve addition and subtraction of one digit numbers as fast as a calculator.
+- ⚡ Fun fact: I love sinigang na baboy.
 
 <!---
 Emanskiee/Emanskiee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
